@@ -1,2 +1,2 @@
 # LUCID ONEPAGE THEME
-https://greenkrok.github.io/LUCID ONEPAGE THEME/
+https://greenkrok.github.io/Lucid Onepage Theme/
