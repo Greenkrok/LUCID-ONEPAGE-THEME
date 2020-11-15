@@ -1,2 +1,2 @@
-# Layot-2
-https://greenkrok.github.io/Layot-2/
+# LUCID ONEPAGE THEME
+https://greenkrok.github.io/LUCID ONEPAGE THEME/
